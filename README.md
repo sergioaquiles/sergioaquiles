@@ -2,7 +2,7 @@
 
 - 🌱 I’m currently learning everything I can
 - 💬 Ask me about all tech related
-- 😄 Pronouns: He/His
+- 😄 Pronouns: He/Him
 ##
 
 <div align="center">
