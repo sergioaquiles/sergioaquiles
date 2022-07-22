@@ -1,4 +1,4 @@
-### Hello there,  I'm Sergio Aquiles - iOS Software Engineer👋
+### Hello there,  I'm Sergio Aquiles - iOS Mobile Developer👋
 
 - 🌱 I’m currently learning everything I can
 - 💬 Ask me about all tech related
